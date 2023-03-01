@@ -38,4 +38,4 @@ QB-TARGET
         - Add as many poles as you would like
 - Pre-Setup for Gabz's new Bahama Mamas Map
 
-[Purchase LINK](https://forum.cfx.re/t/paid-qb-lc-bahamas-an-advanced-bahama-mamas-job/5015269?u=lifecore)
+[Purchase LINK](https://discord.gg/aP73p9U2nr)
